@@ -10,5 +10,5 @@
 rushikesh898/rushikesh898 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
-like this video pathvle https![Screenshot_2024-12-15-17-43-56-75](https://github.com/user-attachments/assets/7fee9e46-5a39-4c00-8dfe-d4aac0e19918)
+like this video pathvle https!
 
